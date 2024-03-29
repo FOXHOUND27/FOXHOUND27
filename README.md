@@ -1,4 +1,4 @@
-### Hi there my name is dalglish 👋
+### Hi! My name is Dalglish Lisulo 😄
 
 <!--
 **FOXHOUND27/FOXHOUND27** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
